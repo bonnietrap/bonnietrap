@@ -1,1 +1,4 @@
-![image alt](https://github.com/psychotheoretical/Guh/blob/e0739078df718894920d411b3b31488da60d27d2/Oppenheimer.jpeg)
+![kids](https://komarev.com&style=flat-square&color=purple)
+
+
+![image alt](https://github.com/bonnietrap/Guh/blob/ec836dc790989754030638ff9ecffa26504e27e4/3a46786e-a07a-4c04-a005-c776918aa351.jpeg)
