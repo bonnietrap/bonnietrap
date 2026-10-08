@@ -1,7 +1,4 @@
 <p align="center">
-| smash your brain and overcome the pain |
+| ; 𝘵𝘩𝘦 𝘸𝘰𝘳𝘭𝘥 𝘪𝘴 𝘮𝘢𝘥𝘦 𝘰𝘶𝘵 𝘰𝘧 𝘴𝘱𝘢𝘤𝘦 𝘥𝘶𝘴𝘵. 𝘸𝘦’𝘳𝘦 𝘵𝘩𝘦 𝘸𝘪𝘯𝘥 𝘵𝘩𝘢𝘵 𝘤𝘢𝘳𝘳𝘪𝘦𝘴 𝘪𝘵 𝘢𝘸𝘢𝘺,𝘺𝘦𝘵 𝘪𝘵 𝘴𝘵𝘪𝘭𝘭 𝘮𝘢𝘯𝘢𝘨𝘦𝘴 𝘵𝘰 𝘥𝘦𝘴𝘵𝘳𝘰𝘺 𝘶𝘴 𝘢𝘯𝘺 𝘮𝘰𝘮𝘦𝘯𝘵. 𝘣𝘶𝘵 𝘸𝘦’𝘳𝘦 𝘵𝘩𝘦 𝘸𝘪𝘯𝘥,𝘸𝘦 𝘵𝘢𝘬𝘦 𝘤𝘰𝘯𝘵𝘳𝘰𝘭,𝘴𝘰 𝘵𝘩𝘢𝘵’𝘴 𝘰𝘬𝘢𝘺. |
 
  ___ 
-
-
-![image alt](https://github.com/bonnietrap/Guh/blob/ec836dc790989754030638ff9ecffa26504e27e4/3a46786e-a07a-4c04-a005-c776918aa351.jpeg)
